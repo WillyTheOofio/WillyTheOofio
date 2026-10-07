@@ -17,6 +17,6 @@ I'm a Mechanical Engineering student at NTU, currently focusing on solid mechani
 ### Beyond the Codes
 I'm also into playing in bands and bouldering, skiing and cooking — feel free to ask me about my homemade bacon or tiramisu recipes, I'd love to discuss cooking with U. ><
 
-And if you ever buy me a drink: strictly 1分糖、去冰Ty.
+And if you ever buy me a drink: strictly 1分糖、去冰, Ty.
 
  **U can reach me at:** willy10120813@gmail.com
